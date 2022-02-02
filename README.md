@@ -1,2 +1,2 @@
-# canoncomsetup
-The setup process for every Canon model is almost similar
+Some factors need to be in mind while choosing an inkjet printer for you. Later, you can easily set up your Canon printer through drivers from wireless connection, USB, and a few components.  <a href="https://canonsetup-canon.com/ijsetup/">canon.com/ijsetup</a> is a website to download Canon printer drivers, you can also visit canonsetup-canon.com/ijsetup website for same.
+<a href="https://istartsetup.com/https-ij-start-cannon/">ij.start.cannon</a> setup process for every Canon model is almost similar, however the download through  <a href="https://istartsetup.com/https-ij-start-cannon/">https //ij.start.cannon</a> or  <a href="https://istartsetup.com/https-ij-start-cannon/">http //ij.start.cannon</a>  and  installation process may differ.
